@@ -8,6 +8,8 @@ time honored tradidion of exploring gladly all this planet has to offer.
 
 It's what connects us.
 
+[travel picture]
+(https://upload.wikimedia.org/wikipedia/commons/c/c9/Nilgiri_Mountain_Train.jpg)
 Have you ever wondered about the lies of people living on the other side
 of the planet, or in neighboring countries? Most of them are good happy
 people dealing with the same struggles we experience every day.
